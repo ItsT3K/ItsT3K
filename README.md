@@ -8,6 +8,11 @@ My pronouns are He/Him.
 Website: https://itst3k.com
 Twitter: @ItsT3000
 
+My profile photo is of a ASCII art version of the character Chen from the Touhou series of games.
+I've had this profile pic here for years and I am too lazy to change it. Plus I really don't want
+to anyways.
+
+
 
 
 <!---
